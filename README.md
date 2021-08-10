@@ -1,5 +1,8 @@
 # fivem-bishops-chicken-mlo
- FiveM Bishops Chicken MLO
+ <b>FiveM Bishops Chicken MLO</b>
 
-Credits: nyyn#1764 & Kondzx#2559 <br>
-Preview: https://www.youtube.com/watch?v=Bcm7lfVlRD0
+<b>Credits:</b> nyyn#1764 & Kondzx#2559 <br>
+<b>Preview:</b> https://www.youtube.com/watch?v=Bcm7lfVlRD0
+<br>
+FREE STUFF
+https://nyyn.pl/
